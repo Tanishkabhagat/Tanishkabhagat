@@ -10,7 +10,7 @@
 
 -😄 Pronouns: she/her
 
--⚡ Fun fact: I design, paint, make music, and believe cozy vibes can change the world ✨🎨🎶
+-⚡ Fun fact: I design, paint, make music, and believe that aesthetic usabilty effect applies in life too ;)
 
 
 
